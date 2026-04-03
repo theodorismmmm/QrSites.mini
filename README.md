@@ -1,0 +1,1 @@
+# QrSites.mini
